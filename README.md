@@ -25,7 +25,7 @@
 
 点击访问：<a href="https://aw4-11.pages.dev/">黑料社区</a>
 
-点击访问：<a href="https://cg8-46.pages.dev/">新瓜</a>
+点击访问：<a href="https://cg8-46.pages.dev/">社区吃瓜 新瓜</a>
 
 点击访问：<a href="https://aw4-19.pages.dev/">暗网禁区 秘密地址</a>
 
